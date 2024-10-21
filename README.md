@@ -1,2 +1,5 @@
-Das beliebte Spiel Schere-Stein-Papier-Echse-Spock!
-von Sheldon Cooper erfunden und von mir digitalisert :)
+Das beliebte Spiel...
+
+Schere-Stein-Papier-Echse-Spock!
+
+Von Sheldon Cooper erfunden und von mir digitalisert :)
